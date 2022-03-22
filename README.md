@@ -1,1 +1,1 @@
-hoge
+neko ga kawaii
